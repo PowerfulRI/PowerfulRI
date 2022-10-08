@@ -1,4 +1,4 @@
-* 👋 Hi, I’m @PowerfulRI
+* 👋 Hi, I’m @PowerfulRI or you can just call me Rome. :)
 * 👀 I’m interested in emerging and disruptive technology such as blockchain technology and the web3 ecosystem.
 * 🌱 I’m currently learning to scale and operate DAOs and leverage web3 tools and resources to improve operations.
 * 💞️ I’m looking to collaborate on hackathons, alpha sharing, and anything having to do with using real estate, business development & operations, and technology as a resource and tool to improve the current inefficiencies by improving and replacing outdated infrastructures.
